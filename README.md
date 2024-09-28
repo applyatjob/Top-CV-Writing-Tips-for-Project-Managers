@@ -58,6 +58,4 @@ As an illustration:
 . Mented junior project managers, promoting a cooperative work environment and achieving a 20% increase in team productivity."
 . Make sure to include instances of your leadership in action. Employers want to know that you can motivate and lead groups of people to achievement.
 You can visit our site: Applyatjob.com<br>
- https://applyatjob.com/hiring-employee<br>
-
- https://applyatjob.com/jobs
+ https://applyatjob.com/hiring-employee<br> https://applyatjob.com/jobs
